@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @aravind01bs
+- 👋 Hi, I’m @aravind01
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning Nothing much
 - 💞️ I’m looking to collaborate on No one
